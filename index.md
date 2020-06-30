@@ -8,3 +8,5 @@ Queen Cersei I Lannister was the twentieth ruler of the Seven Kingdoms and the w
 * Good player of the game of thrones
 
 > In the game of thrones, you win, or you die.
+
+<img src="https://vignette.wikia.nocookie.net/gameofthrones/images/b/b0/CERSEIBATTLEOFKINGSLANDING.PNG/revision/latest?cb=20190906021534"/>
