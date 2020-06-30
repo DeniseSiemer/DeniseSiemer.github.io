@@ -6,3 +6,5 @@ Queen Cersei I Lannister was the twentieth ruler of the Seven Kingdoms and the w
 * Evil
 * Loves her children, but only her children
 * Good player of the game of thrones
+
+> In the game of thrones, you win, or you die.
